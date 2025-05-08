@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on nothing 
 - 📫 How to reach me through discord i.e. vyrof and rofo
 - 😄 Pronouns:He/Him/We/So/sa/ni/na/zi/zim
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I have no experience
+- 
 
 <!---
 Brimomera/Brimomera is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
